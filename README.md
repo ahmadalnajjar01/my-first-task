@@ -19,6 +19,7 @@ discount for black friday to subscribe our school ~~500$~~ 250$
 | ali | example@gmail.com  | +96233333333 |
 
 ![google](https://www.google.jo/images/branding/googlelogo/1x/googlelogo_light_color_272x92dp.png)
+**thank you**
 
 
 
