@@ -1,4 +1,5 @@
 # gamers community 
+[figma](https://www.figma.com/design/gG21T59FvGj16Rf2Stepll/gamergang?t=8h1yrFqnZbotBnJE-0)
 school to **learn** gamers 
 ___
 discount for black friday to subscribe our school ~~500$~~ 250$ 
