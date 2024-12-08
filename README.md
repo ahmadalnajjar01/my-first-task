@@ -1,4 +1,4 @@
-[figma](https://www.figma.com/design/eXqniUXyKluGVHo62pFvRG/gamergang?t=k52djSNkhC2Qdb9c-0)
+[figma](https://www.figma.com/design/gG21T59FvGj16Rf2Stepll/gamergang?t=8h1yrFqnZbotBnJE-0)
 # gamers community 
 school to **learn** gamers 
 ___
